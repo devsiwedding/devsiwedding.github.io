@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Duxbury Information
+title: Our Story
 ---
 
 <!-- Text stuff -->
