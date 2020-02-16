@@ -15,7 +15,7 @@ We have reserved rooms at two hotels in Plymouth, a nearby town that is a ~15 mi
 <a href="https://secure3.hilton.com/en_US/gi/reservation/book.htm?inputModule=HOTEL&ctyhocn=PYMMAGI&spec_plan=JONES&arrival=20200827&departure=20200831&cid=OM,WW,HILTONLINK,EN,DirectLink&fromId=HILTONLINKDIRECT">Hilton Garden Inn, Plymouth</a>
 
 
-Other options:
+<h2>Other options:</h2>
 
 AirBnB – lots of AirBnB options in Duxbury as well as neighboring towns of Marshfield, Kingston, Plymouth, Scituate, Cohasset and Hingham 
 
