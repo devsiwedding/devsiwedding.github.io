@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Accommodation, Schedule information now live!
+title: Accommodation & Schedule website sections now live!
 description: Check out the accommodation and schedule sections
 image: assets/images/pic110.jpg
 ---
