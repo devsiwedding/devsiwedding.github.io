@@ -17,17 +17,17 @@ We have reserved rooms at two hotels in Plymouth, a nearby town that is a ~15 mi
 
 <h2>Other options:</h2>
 
-AirBnB – lots of AirBnB options in Duxbury as well as neighboring towns of Marshfield, Kingston, Plymouth, Scituate, Cohasset and Hingham 
+<b>AirBnB – lots of AirBnB options in Duxbury as well as neighboring towns of Marshfield, Kingston, Plymouth, Scituate, Cohasset and Hingham 
 
-Winsor House Inn in Duxbury MA.  Walking distance to the reception venue:
+<b>Winsor House Inn</b> in Duxbury MA.  Walking distance to the reception venue:
 <a href="https://www.winsorhouseinn.com/">Winsor House Inn</a>
 
-The Fairview Inn in Marshfield MA.  10 minute drive from Duxbury: 
+<b>The Fairview Inn</b> in Marshfield MA.  10 minute drive from Duxbury: 
 <a href="https://thefairviewinn.com/">The Fairview Inn</a>
 
-Mirbeau Inn and Spa – The Pinehills in Plymouth MA.  20 minute drive from Duxbury: 
+<b>Mirbeau Inn and Spa The Pinehills</b> in Plymouth MA. 20 minute drive from Duxbury: 
 <a href="https://www.pinehills.com/whats-here/mirbeau-inn-spa">Mirbeau Inn and Spa</a>
 
-The Inn at Scituate Harbor in Scituate MA.  25 minute drive from Duxbury: 
+<b>The Inn at Scituate Harbor</b> in Scituate MA.  25 minute drive from Duxbury: 
 <a href="http://www.innatscituate.com/">The Inn at Scituate Harbor</a>
 
