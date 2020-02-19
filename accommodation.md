@@ -10,6 +10,8 @@ We encourage guests to book accommodation as soon as possible because August is 
 
 We have reserved rooms at two hotels in Plymouth, a nearby town that is a ~15 minute drive from Duxbury. Please get in touch with us if you have any trouble booking these hotel rooms. 
 
+Our code is SHERMAN JONES WEDDING 
+
 <a href="http://group.hamptoninn.com/ShermanJonesWedding">Hampton Inn & Suites Plymouth</a>
 
 <a href="https://secure3.hilton.com/en_US/gi/reservation/book.htm?inputModule=HOTEL&ctyhocn=PYMMAGI&spec_plan=JONES&arrival=20200827&departure=20200831&cid=OM,WW,HILTONLINK,EN,DirectLink&fromId=HILTONLINKDIRECT">Hilton Garden Inn, Plymouth</a>
