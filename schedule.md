@@ -8,7 +8,9 @@ title: Schedule
 
 2:00 PM wedding rehearsal at Holy Family Church (wedding party only) 
 
-6:00 PM Welcome Drinks at Sherman Family Home at 92 Hounds Ditch Lane Duxbury MA 02332.  Dress Code: Casual Chic 
+6:00 PM Welcome Drinks at Sherman Family Home at 92 Hounds Ditch Lane Duxbury MA 02332. 
+
+Dress Code: Casual Chic 
 
 <h2>Saturday, August 29th</h2>
 
@@ -16,7 +18,7 @@ title: Schedule
 
 4:30 PM Wedding Reception at Clifford Hall at the Duxbury Bay Maritime School at 457 Washington Street in Duxbury, MA
 
-9:00 PM After Party at The Raw Bar at Island Creek Oyster Farm at 403-7 Washington Street in Duxbury, MA 
+After Party at The Raw Bar at Island Creek Oyster Farm at 403-7 Washington Street in Duxbury, MA 
 
 Dress Code: Formal Cocktail Attire. Fascinators encouraged for women! 
 
