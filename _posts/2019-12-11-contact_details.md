@@ -7,4 +7,4 @@ image: assets/images/pic10.jpg
 
 Please use the form at the bottom of the page to give us your contact details.  
 
-We will use this to send out save the dates and invitations, as well as let you know when we update this website with useful information.
+We'll use this to send out save the dates and invitations, as well as let you know when we update this website with useful information.
