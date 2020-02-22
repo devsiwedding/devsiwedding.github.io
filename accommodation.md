@@ -10,7 +10,7 @@ We encourage guests to book accommodation as soon as possible because August is 
 
 We have reserved rooms at two hotels in Plymouth, a nearby town that is a ~15 minute drive from Duxbury. Please get in touch with us if you have any trouble booking these hotel rooms. 
 
-Our code is SHERMAN JONES WEDDING 
+Our code is <b>SHERMAN JONES WEDDING</b> 
 
 <a href="http://group.hamptoninn.com/ShermanJonesWedding">Hampton Inn & Suites Plymouth</a>
 
@@ -19,17 +19,22 @@ Our code is SHERMAN JONES WEDDING
 
 <h2>Other options:</h2>
 
-AirBnB – lots of AirBnB options in Duxbury as well as neighboring towns of Marshfield, Kingston, Plymouth, Scituate, Cohasset and Hingham 
+<b>AirBnB</b>
+Lots of AirBnB options in Duxbury as well as neighboring towns of Marshfield, Kingston, Plymouth, Scituate, Cohasset and Hingham 
 
-Winsor House Inn in Duxbury MA.  Walking distance to the reception venue:
+<b>Winsor House Inn</b>
+In Duxbury MA.  Walking distance to the reception venue:
 <a href="https://www.winsorhouseinn.com/">Winsor House Inn</a>
 
-The Fairview Inn in Marshfield MA.  10 minute drive from Duxbury: 
+<b>The Fairview Inn</b>  
+In Marshfield MA.  10 minute drive from Duxbury: 
 <a href="https://thefairviewinn.com/">The Fairview Inn</a>
 
-Mirbeau Inn and Spa The Pinehills in Plymouth MA. 20 minute drive from Duxbury: 
+<b>Mirbeau Inn and Spa The Pinehills</b> 
+In Plymouth MA. 20 minute drive from Duxbury: 
 <a href="https://www.pinehills.com/whats-here/mirbeau-inn-spa">Mirbeau Inn and Spa</a>
 
-The Inn at Scituate Harbor in Scituate MA.  25 minute drive from Duxbury: 
+<b>The Inn at Scituate Harbor</b> 
+In Scituate MA.  25 minute drive from Duxbury: 
 <a href="http://www.innatscituate.com/">The Inn at Scituate Harbor</a>
 
