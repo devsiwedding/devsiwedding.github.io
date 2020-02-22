@@ -14,7 +14,7 @@ Duxbury is a historic New England town on the stretch of coast between Boston an
 
 <b>Gurnet Lighthouse</b> - walk, run or bike down Gurnet Road (the dirt beach road) and check out the Gurnet Lighthouse overlooking Plymouth Bay and the Altantic Ocean. 
  
-<b>Kayaking, Canoeing, Sailing or Paddle-boarding</b> – lots of opportunities to get active! Rentals can be found at the Duxbury Bay Maritime School or Levitate in Marshfield, MA. Devon's Dad, Chris, is an avid fisherman and can give any fellow sea-lovers some tips!
+<b>Kayaking, Canoeing, Sailing, Paddle-boarding and fishing</b> – lots of opportunities to get active! Rentals can be found at the Duxbury Bay Maritime School or Levitate in Marshfield, MA. Devon's Dad, Chris, is an avid fisherman and can give any fellow sea-lovers some tips!
 
 <b>Duxbury Art Complex Museum</b> – check out this collection of more than 8,000 pieces focused on Shaker furniture, American paintings and Asian art.
 
