@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Want to Come? What you need to do!
-description: Give us your contact details
+description: Give us your contact details!
 image: assets/images/pic10.jpg
 ---
 
