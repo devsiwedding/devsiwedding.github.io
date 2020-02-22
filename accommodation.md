@@ -8,7 +8,7 @@ image: assets/images/pic01.jpg
 
 We encourage guests to book accommodation as soon as possible because August is a popular month for tourism particularly as the region will be celebrating the 400th Anniversary of the Mayflower voyage in 1620 and the founding of Plymouth Colony, the first colonial settlement in New England. 
 
-We have reserved rooms at two hotels in Plymouth, a nearby town that is a ~15 minute drive from Duxbury. Please get in touch with us if you have any trouble booking these hotel rooms. 
+We've reserved rooms at two hotels in Plymouth, a nearby town that is a ~15 minute drive from Duxbury. Please get in touch with us if you have any trouble booking these hotel rooms. 
 
 Our code is <b>SHERMAN JONES WEDDING</b> 
 
