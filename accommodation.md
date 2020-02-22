@@ -20,21 +20,20 @@ Our code is <b>SHERMAN JONES WEDDING</b>
 <h2>Other options:</h2>
 
 <b>AirBnB</b>
-Lots of AirBnB options in Duxbury as well as neighboring towns of Marshfield, Kingston, Plymouth, Scituate, Cohasset and Hingham 
+lots of AirBnB options in Duxbury as well as neighboring towns of Marshfield, Kingston, Plymouth, Scituate, Cohasset and Hingham 
 
 <b>Winsor House Inn</b>
-In Duxbury MA.  Walking distance to the reception venue:
+in Duxbury MA.  Walking distance to the reception venue:
 <a href="https://www.winsorhouseinn.com/">Winsor House Inn</a>
 
-<b>The Fairview Inn</b>  
-In Marshfield MA.  10 minute drive from Duxbury: 
+<b>The Fairview Inn</b> in Marshfield MA.  10 minute drive from Duxbury: 
 <a href="https://thefairviewinn.com/">The Fairview Inn</a>
 
 <b>Mirbeau Inn and Spa The Pinehills</b> 
-In Plymouth MA. 20 minute drive from Duxbury: 
+in Plymouth MA. 20 minute drive from Duxbury: 
 <a href="https://www.pinehills.com/whats-here/mirbeau-inn-spa">Mirbeau Inn and Spa</a>
 
 <b>The Inn at Scituate Harbor</b> 
-In Scituate MA.  25 minute drive from Duxbury: 
+in Scituate MA.  25 minute drive from Duxbury: 
 <a href="http://www.innatscituate.com/">The Inn at Scituate Harbor</a>
 
