@@ -12,7 +12,7 @@ Duxbury is a historic New England town on the stretch of coast between Boston an
 
 <b>Powder Point Bridge</b> – take a scenic 10-minute walk across this wooden bridge connecting the mainland to Duxbury Beach. At low tide, you’ll find people digging for clams and at high tide you’ll get to see fisherman looking for bluefish and snappers. Keep an eye out for Clark's Island in Duxbury Bay visited by famous writers Truman Capote, Henry David Thoreau and Louisa May Alcott. 
 
-<b>Gurnet Lighthouse</b> - you can also walk, run or bike down Gurnet Road to the Gurnet and check out the Gurnet Lighthouse overlooking Plymouth Bay and the Altantic Ocean. 
+<b>Gurnet Lighthouse</b> - walk, run or bike down Gurnet Road (the dirt beach road) and check out the Gurnet Lighthouse overlooking Plymouth Bay and the Altantic Ocean. 
  
 <b>Kayaking, Canoeing, Sailing or Paddle-boarding</b> – lots of opportunities to get active! Rentals can be found at the Duxbury Bay Maritime School or Levitate in Marshfield, MA. 
 
