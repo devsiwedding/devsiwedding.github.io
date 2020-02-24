@@ -25,9 +25,3 @@ Dress Code: Formal Cocktail Attire. Fascinators encouraged for women!
 <h2>Sunday August 30th</h2> 
 
 For friends and family interested in lacing up your cleats/boots, the bride and groom will be playing a casual <b>pick up soccer/football game</b> at <b>noon</b> on the fields of Duxbury High School located at 71 Alden Street in Duxbury MA – come join us! 
-
-
-
-<h2>Wedding Hashtag</h2> 
-
-#DevGotASiamondRing
