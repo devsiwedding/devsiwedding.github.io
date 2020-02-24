@@ -6,9 +6,9 @@ title: Schedule
 <!-- Text stuff -->
 <h2>Friday August 28th</h2>
 
-<b>2:00 PM Wedding Rehearsal</b> at Holy Family Church (wedding party only) 
+<b>2:00 PM Wedding Rehearsal</b> for wedding party only at Holy Family Church 
 
-<b>6:00 PM Welcome Drinks</b> at Sherman Family Home at 92 Hounds Ditch Lane Duxbury MA 02332. 
+<b>6:00 PM Welcome Drinks</b> for all guests at Sherman Family Home at 92 Hounds Ditch Lane Duxbury MA 02332. 
 
 Dress Code: Casual Chic 
 
