@@ -14,7 +14,7 @@ Duxbury is a historic New England town on the stretch of coast between Boston an
 
 <b>Gurnet Lighthouse</b> - walk, run or bike down Gurnet Road (the dirt beach road) and check out the Gurnet Lighthouse overlooking Plymouth Bay and the Altantic Ocean. 
  
-<b>Kayaking, Canoeing, Sailing, Paddle-boarding and fishing</b> – lots of opportunities to get active! Rentals can be found at the Duxbury Bay Maritime School or Levitate in Marshfield, MA. Devon's Dad, Chris, is an avid fisherman and can give any fellow sea-lovers some tips!
+<b>Kayaking, Canoeing, Sailing, Paddle-boarding and fishing</b> – lots of opportunities to get active! Rentals can be found at the Duxbury Bay Maritime School or Levitate in Marshfield, MA. 
 
 <b>Duxbury Art Complex Museum</b> – check out this collection of more than 8,000 pieces focused on Shaker furniture, American paintings and Asian art.
 
@@ -43,7 +43,7 @@ Duxbury is a historic New England town on the stretch of coast between Boston an
 
 <b>Far Fars</b> – Dutch homemade ice-cream shop. A must for when you’re visiting! No surpise here but we recommend the chocolate flavor!
 
-<b>The Raw Bar at Island Creek Oyster Bar</b> – beautiful spot overlooking Duxbury Bay serving freshly shucked oysters, tinned fish, hot dogs, caviar and local craft beer and wine with fire pits and games. Devon's brother, Chris, runs the Island Creek Oysters, and can tell you just about anything about oysters! 
+<b>The Raw Bar at Island Creek Oyster Bar</b> – beautiful spot overlooking Duxbury Bay serving freshly shucked oysters, tinned fish, hot dogs, caviar and local craft beer and wine with fire pits and games. 
 
 <b>Bonjis</b> – no fuss café that sells delicious American turkey sandwhiches with homemade stuffing, gravy and cranberry sauce. One of our favorites!  
 
@@ -73,14 +73,16 @@ Duxbury is a historic New England town on the stretch of coast between Boston an
 
 <h2>Day or Overnight Trips:</h2> 
 
-<b>Boston</b> – a few of our favorite recommendations are catching a Red Sox game, doing the Freedom Trail, shopping on Newbury Street and Charles Street, touring Harvard University and Harvard Square and exploring the Museum of Fine Arts, Institute of Contemporary Art and Isabella Stewart Garner Museum.
+<b>Boston</b> – a few of our favorite recommendations are catching a Red Sox game, doing the Freedom Trail, shopping on Newbury Street and Charles Street, walking/biking/running on the Charles River Esplanade, picnicing at the Arnold Arboretum and exploring the Museum of Fine Arts, Institute of Contemporary Art and Isabella Stewart Garner Museum. Our favorite restaurants are in neighboring Somerville and Cambridge - ask us for any recs! 
+
+<b>Cambridge</b> - some of our favorite things to do are walking through Mount Auburn Cemetery, seeing a concert at The Sinclair, checking out the exhibits at the Harvard Art Museums, perusing Harvard Book Store, seeing an old film at Brattle Theatre and exploring Harvard Yard. For a great meal, check out Alden & Harlow and for drinks, camp out on the rooftop bar at Daedalus. 
 
 <b>Cape Cod</b> – very popular summer vacation spot, 65 mile long peninsula in the Atlantic Ocean with tons of beaches, natural attractions, historic sites, art galleries, antiques and delicious seafood. Lots of golf, fishing and other outdoor activities too. Can drive to anywhere on Cape Cod from Duxbury. Advanced bookings highly recommended. 
 
-<b>Martha’s Vineyard and Nantucket</b> - islands to the south of Cape Cod with beautiful beaches, excellent shopping, tons of restaurants and loads of outdoor activities. Can ferry to both Islands from Cape Cod. Advance bookings highly recommeded. 
+<b>Martha’s Vineyard and Nantucket</b> - islands to the south of Cape Cod with beautiful beaches, excellent shopping, tons of restaurants and loads of outdoor activities. Can ferry to both Islands from Cape Cod. Advanced bookings highly recommeded. 
 
 <b>Further South</b> – New York City (4 hour train ride, 1 hour flight from Boston). We have tons of recommendations for NYC - just ask! 
 
-<b>Further North</b> – Vermont/New Hampshire/Maine. Our favorite New England cities are Portland, Maine (2 hours north of Boston) Woodstock, Vermont (2.5 hours from Boston) and North Conway, New Hampshire (3 hours north of Boston).
+<b>Further North</b> – our favorite New England cities are Portland, Maine (2 hours north of Boston) Woodstock, Vermont (2.5 hours from Boston) and North Conway, New Hampshire (3 hours north of Boston).
 
 Definitely ask us for recommendations if you decide to explore these or other places around New England – we’re happy to help!
